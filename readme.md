@@ -1,3 +1,3 @@
-Click on this [Website]([wintrsatoru.github.io](https://wintrsatoru.github.io/)https://wintrsatoru.github.io/)
+Click on this [Website](https://wintrsatoru.github.io/)
 
 
